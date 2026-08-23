@@ -1,6 +1,6 @@
 <p align="center">ㅤ<img src="https://files.catbox.moe/z9fkf9.png" width="400">
  
-<p align="center">"isnt he cute.." 
+<p align="center">"I'm srs ab this guy" 
 
 ${\textsf{\color{#7FDBDA}youre posting}}$
 ${\textsf{\color{#ADE498}another pic}}$
